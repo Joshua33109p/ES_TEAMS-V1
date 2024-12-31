@@ -56,7 +56,7 @@
 | 8GB RAM PANEL                    | 4000 NAIRA   ✅     
 | 9GB RAM PANEL                    | 5000 NAIRA   ✅     
 | 10GB RAM PANEL                   | 5500 NAIRA   ✅
-
+transfer to 8062215867 opay send ss to 08062215867
 `Contact ES TEAMS TECH to Purchase a Private Fast Panel Now!!!`
 
 
